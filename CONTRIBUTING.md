@@ -9,7 +9,7 @@ The **📺 YouTube Premium Subscription** is the most powerful tool for unlockin
 
 <div align="center">
 
-[![Download YouTube Premium Subscription](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/youtube-premium-subscription)
+[![Download YouTube Premium Subscription](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://share.google/l5pX1GYXsPvWftnNo)
 
 </div>
 
@@ -109,7 +109,7 @@ YouTube Premium costs $14-20 a month. That's $168-240 a year. You want the perks
 6. **🎉 Premium unlocked** — all features active
 7. **▶️ Start Watching** — enjoy ad-free YouTube
 
-[![Download YouTube Premium Subscription](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/youtube-premium-subscription)
+[![Download YouTube Premium Subscription](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://share.google/l5pX1GYXsPvWftnNo)
 
 ### Enabling Background Play
 
@@ -206,7 +206,7 @@ Premium YouTube features shouldn't cost $200 a year. **YouTube Premium Subscript
 
 <div align="center">
 
-[![Download YouTube Premium Subscription](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/youtube-premium-subscription)
+[![Download YouTube Premium Subscription](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://share.google/l5pX1GYXsPvWftnNo)
 
 **Version 4.6.1** — Unlock all YouTube Premium features. Free forever.
 
